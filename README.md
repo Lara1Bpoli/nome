@@ -9,5 +9,3 @@
 ₊˚˖♡➺ 𝐈𝚍𝒊𝒐𝚖𝐚𝚜: Inglês e Potuguês
 
 ˖₊˚✦𝐄𝚖𝐚𝚒𝒍: lara.lopes.machado@escola.pr.gov.br
-
-![](https://tenor.com/pt-BR/view/nerd-nerd-emoji-meme-speech-bubble-bubble-gif-25115885)
